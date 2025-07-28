@@ -1,4 +1,4 @@
-Support for Connect – Date Night Card Deck
+Support for Connect – Date Night Card Deck App
 
 If you have questions, feedback, or need help using the app, please contact us:
 
